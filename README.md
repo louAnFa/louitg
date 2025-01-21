@@ -1,1 +1,0 @@
-# This is a gaming website for school, this is created by only one person, with no other help at all, only one person works on this so if updates are slow, that is why, I can't do everything super fast as one person, and I have a life too.
